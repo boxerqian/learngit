@@ -1,3 +1,3 @@
 someone like you 
-noone like me
+noone like you or
 i forget my memory in tecent twitter
